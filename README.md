@@ -1,1 +1,1 @@
-# manalee-afk.github.io
+# Welcome to our newsletter. The content coming soon
